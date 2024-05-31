@@ -7,7 +7,7 @@
 
 **_Catalina Arenas Mercado_**
 
-**_Shirly Darley Melendez_**
+**_Shirly Darley Melendez Aguirre_**
 
 
 _PROGRAMA DE INGENIERÍA INDUSTRIAL_
